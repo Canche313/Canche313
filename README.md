@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Canche313
+- 👀 I’m interested in justice
+- 🌱 I’m currently learning python n kali linux stuff
+- 💞️ I’m looking to collaborate on anything
+- 📫 How to reach me :)
